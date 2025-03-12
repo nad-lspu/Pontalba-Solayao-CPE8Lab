@@ -1,1 +1,0 @@
-Nababasa mo ba ito?
